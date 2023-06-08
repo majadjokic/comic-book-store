@@ -1,4 +1,12 @@
-# veoma-dobar-kod-hahaha
+Šta ovaj projekat radi?
+
+Pravi bazu.
 
 
-Kako se ovo koristi???
+
+
+
+
+
+
+To je to... sorry :(
