@@ -9,6 +9,6 @@ Pravi bazu.
 
 
 
-To je to... sorry :(
+To je to... izvinite :(
 
 -Maja Đokić 195/18
